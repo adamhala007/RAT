@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1.
-2. Tamás Bilek
-3.
+2.
+3.Róbert Ruska
 4.
 
